@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with 3008 instant Scripts, the #1 Script. Includes anti-ban and unlimited stamina for unbeatable performance.
 
 
 
